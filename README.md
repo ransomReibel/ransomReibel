@@ -1,4 +1,4 @@
+![Walk Run Gif](https://user-images.githubusercontent.com/88223040/132146887-5702a8a0-ad37-4aa7-8051-bf1086d490b5.gif)
 
-[Walk Run Gif](https://user-images.githubusercontent.com/88223040/132146754-9e2f7650-61d6-4dc7-90dc-c5c4d23263d2.gif)
 
 
